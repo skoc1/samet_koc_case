@@ -1,1 +1,0 @@
-# samet_koc_case
